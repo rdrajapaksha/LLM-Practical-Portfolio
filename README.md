@@ -1,2 +1,2 @@
 # LLM-Practical-Portfolio
-hiiiii
+.............................Monada hynne......................
